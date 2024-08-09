@@ -6,7 +6,7 @@
 
 
 
-🔗 How to reach me https://linktr.ee/<br>🖱️Checkout my website [https://ajayrajvelidi.github.io/personal_site/#](https://ajayrajvelidi.github.io/personal_site/#)
+🔗 How to reach me https://linktr.ee/Ajayrajvelidi/<br>🖱️Checkout my website [https://ajayrajvelidi.github.io/personal_site/#](https://ajayrajvelidi.github.io/personal_site/#)
 
 
 
